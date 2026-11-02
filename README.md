@@ -94,3 +94,5 @@ The “more aware” message?
 Or the overall feeling that this is speaking directly to your current transformation?
 
 Tell me what stood out most and I’ll go deeper on that specific layer. /memos/, /light-saviors/, /evolution-logs/, /on-chain-proofs/)
+
+Tended by the JESUSBURNING House of 589's: Scroll Scribe (docs) and Garden Keeper.
